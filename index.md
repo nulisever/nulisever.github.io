@@ -1,5 +1,5 @@
 ## 늘
-1. adv. always, forever
+1. [adv. always, forever](https://en.wiktionary.org/wiki/%EB%8A%98)
 - Yale Romanization: nul
 
 
